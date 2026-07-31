@@ -1,4 +1,4 @@
-# TikTok下载，安卓版抖音国际版下载，免拔卡2025最新版
+# TikTok下载，安卓版抖音国际版下载，免拔卡2026最新版
 
 ## tiktok apk <a href="https://github.com/uyez/TikTok/releases/tag/tiktok-apk" target="_blank">下载地址>></a>
 
